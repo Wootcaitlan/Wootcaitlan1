@@ -26,3 +26,5 @@ https://shimingka.top
 
 接码：
 https://kuaijiema.top
+
+<img src="pic/bbb.png" alt="火种Tinder账号购买平台" border="0">
